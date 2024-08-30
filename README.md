@@ -1,0 +1,1 @@
+Kendi kendime öylesine çalışmalar
